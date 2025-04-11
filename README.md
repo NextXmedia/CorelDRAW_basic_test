@@ -1,0 +1,1 @@
+# CorelDRAW_basic_test
